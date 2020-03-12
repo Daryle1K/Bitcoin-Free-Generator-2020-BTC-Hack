@@ -1,6 +1,13 @@
 # Bitcoin Free Generator 2020 BTC Hack
 Get up to 10,000 BTC using our site.
 
+
+### Get FREE BTC
+===> [btcfree.cc](https://btcfree.cc)
+### Get Free Bitcoins
+===> [btcfree.cc](https://btcfree.cc)
+
+
 Relatively few individuals know that **free bitcoin** is ready for whoever gets there first. Truth be told, there are four fantastic approaches to acquire bitcoins for nothing on the web. You can join buy reward programs, open an enthusiasm bearing bitcoin account, become a member advertiser, and even get paid to mine bitcoin with no particular equipment. 
 
 ## Need to procure significantly increasingly free Bitcoin from shopping on the web? 
